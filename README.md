@@ -1,6 +1,6 @@
 # Full Stack Developer* (Junior)
 
-Hallo Stephan,
+Hallo xxx,
 
 ehrlich gesagt, vor 20 Jahren war ich vom Informatikstudium nicht so begeistert wie jetzt. Und ich muss sagen, nach so vielen Jahren anfangen, wieder etwas Neues zu lernen ist relativ schwierig. Aber du weisst, um eine Lokomotive auf Touren zu bringen, braucht man große Anstrengung und viel Kraft. Nun kann ich mit Lernen nicht mehr aufhören. Es gibt sehr Vieles und Interessantes in digitaler Welt, so dass ich mich richtig austoben kann. Ich bin gerade fertig mit meinem Studium und suche mir einen Platz, wo ich es weiter machen kann. Und genau deine Stellenausschreibung klingt sehr danach.
 
